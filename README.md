@@ -1,1 +1,1 @@
-https://atheodog.github.io
+https://atheodog.github.io/cebsite/
